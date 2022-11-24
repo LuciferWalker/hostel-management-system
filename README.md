@@ -134,7 +134,7 @@ Don't forget to give the project a star!
 
 Preet Patel - [https://www.linkedin.com/in/patelpreet25](https://www.linkedin.com/in/patelpreet25)
 
-Priyank Mistry - [https://www.linkedin.com/in/priyank-mistry-7b7886203/(https://www.linkedin.com/in/priyank-mistry-7b7886203)
+Priyank Mistry - https://www.linkedin.com/in/priyank-mistry-7b7886203/(https://www.linkedin.com/in/priyank-mistry-7b7886203)
 
 
 
